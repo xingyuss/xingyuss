@@ -2,7 +2,7 @@
 xingyuss
 
 
-http://xingyu.vtsone.com/
+http://xingyu.sonhana.com/
 
 
 
