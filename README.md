@@ -2,7 +2,7 @@
 xingyuss
 
 
-http://xingyu.300.my
+
 
 http://xingyu.cowher.com
 
