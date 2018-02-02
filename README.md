@@ -2,15 +2,11 @@
 xingyuss
 
 
-
+http://xingyu.klibb.com
 
 http://xingyu.cowher.com
 
 http://xingyu.depocen.com
-
-http://xingyu.dh3.com
-
-http://xingyu.textnz.com
 
 https://xingyu.sieid.com
 
