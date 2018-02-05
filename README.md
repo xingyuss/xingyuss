@@ -8,8 +8,6 @@ http://xingyu.cowher.com
 
 http://xingyu.depocen.com
 
-https://xingyu.sieid.com
-
 
 www.xingyuss.com 星域ss常伴身边，星辰大海即日可达。
 
