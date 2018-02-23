@@ -2,11 +2,11 @@
 xingyuss
 
 
-http://xingyu.klibb.com
+http://xingyu.dehme.com
 
-http://xingyu.cowher.com
+http://xingyu.giftto.com
 
-http://xingyu.depocen.com
+http://xingyu.tapons.com
 
 
 www.xingyuss.com 星域ss常伴身边，星辰大海即日可达。
