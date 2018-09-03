@@ -3,7 +3,7 @@ xingyuss
 
 http://www.aicaiqi.com/  需要国内IP访问
 
-
+http://xingyu.ent3r.net
 
 www.xingyuss.com 星域ss常伴身边，星辰大海即日可达。
 
