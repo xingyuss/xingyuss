@@ -1,6 +1,10 @@
 # xingyuss
 xingyuss
 
+
+
+http://103.78.122.178:81/
+
 http://www.aicaiqi.com/  需要国内IP访问
 
 http://xingyu.ent3r.net
